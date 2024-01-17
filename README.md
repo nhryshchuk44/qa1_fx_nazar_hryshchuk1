@@ -1,0 +1,1 @@
+# qa1_fx_nazar_hryshchuk1
